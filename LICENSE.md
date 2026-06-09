@@ -1,4 +1,4 @@
-#  
+#  hypershot best Scripts offers the most advanced hypershot Script, with auto-farm and auto-sell. Perfect for dominating any match.
 
 
 
